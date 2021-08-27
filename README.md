@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Georgiexo
 - 👀 I’m interested in Working out, veganism, languages(Latin based), running, psychs, beats, rap, drill music, dogs, Japanese cars
 - 🌱 I’m currently learning ...FL Studio, synths, coding languages, philosophy
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on .. anything 
 - 📫 How to reach me ...jorgemeraz@live.com
 
 <!---
